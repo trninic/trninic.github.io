@@ -1,3 +1,0 @@
-# trninic.github.io
-
-Proba ...
